@@ -1,2 +1,3 @@
-# Assignments-Showcase
-Assignments Showcase Check out my all Projects &amp; Assignments below:
+# Projects-Showcase
+
+Check out my all Projects &amp; Assignments below:
